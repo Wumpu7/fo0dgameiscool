@@ -1,1 +1,1 @@
-# foodgame.github.io
+# foodgameiscool.github.io
